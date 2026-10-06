@@ -1,0 +1,1 @@
+I'm not a programmer, I just needed this so I PROOOOOOMPted and figured I'd share it. Feel free to make changes or do whatever tf you want with it. Hopefully an actual programmer will take this and make something cooler out of it. 
